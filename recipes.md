@@ -113,3 +113,22 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+### Banana Pudding
+
+Ingredients:
+- 1 package instant vanilla pudding mix (3.4 oz)
+- 2 cups cold milk
+- 1 can sweetened condensed milk (14 oz)
+- 1 tbsp vanilla extract
+- 1 container frozen whipped topping, thawed (8 oz)
+- 1 box vanilla wafers
+- 4 bananas, sliced
+
+Instructions:
+1. In a large bowl, whisk together the pudding mix and cold milk until smooth.
+2. Add the sweetened condensed milk and vanilla extract. Mix until combined.
+3. Gently fold in the whipped topping until smooth.
+4. In a trifle dish or large bowl, layer vanilla wafers, banana slices, and pudding mixture.
+5. Repeat layers, ending with pudding mixture on top.
+6. Refrigerate for at least 2 hours before serving to let flavors meld.
